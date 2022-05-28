@@ -1,1 +1,1 @@
-# San-Jose-State-University-Spartan-Joseph-Unruh-Webpage
+# San-Jose-State-University-Spartan-Joseph-Daniel-Unruh-Webpage
